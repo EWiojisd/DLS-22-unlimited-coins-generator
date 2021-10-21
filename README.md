@@ -1,2 +1,5 @@
-# DLS-22-unlimited-coins-generator
-DLS 2022 Hacks Diamonds and unlimited coins generator that working patch
+# DLS 2022 Hacks Diamonds and unlimited coins generator that working patch
+
+DLS 2022 Hacks Diamonds and unlimited coins generator that working patch - We briefly mentioned form improvement earlier. You may want to know what they are and what they can do for your players. First, you can click any player in the starting lineup, and then click the button with the same name in the lower right corner of the screen to access the boost form. Here, you can choose to use normal form upgrade for 5 gems, rare form upgrade for 8 gems, or legendary form upgrade for 10 gems. This will increase the player's overall score by 1, 2 or 3 points respectively, depending on the promotion method you choose. For all players, the price is the same regardless of the level. No matter which one you use, the effect will last only one game - the game clearly shows that these are temporary improvements! With this in mind, and considering that gemstones are a high-grade currency, should you buy form boosters? If so, when is the best time to use them?
+
+https://dlscheat.top/
